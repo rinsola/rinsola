@@ -1,4 +1,4 @@
-### Hi there 👋
+### My name is Oluwaseun Akintibubo and i am a Data Analyst.👋
 
 
 
